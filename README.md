@@ -10,7 +10,7 @@
   <img src="https://telegra.ph/file/7b375b3abb0b483fd0d98.jpg">
 </p>
 
-## Found Me On Telegram [@JisooXRobot](https://t.me/AnosVoldigoadBot)
+## Found Me On Telegram [@FakeAprtbot](https://t.me/fakeapart)
 
 
 
